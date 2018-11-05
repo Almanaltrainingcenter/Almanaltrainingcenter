@@ -1,0 +1,2 @@
+# Almanaltrainingcenter
+Al Manal Training  is  an educational center  dedicated  to excellence and up-to-date training . Building on our previous success in India, our new branch in Abu Dhabi, UAE. recently opened its doors. We are presently offering a  broad range of educational courses such as Microsoft, Accounting, English, Management, CAD and Engineering , and  ICT Design. Our instructors, who have a wealth of   expertise in their respective fields, are here to help  you acquire the exact skills you need.
